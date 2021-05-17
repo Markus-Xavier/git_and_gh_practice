@@ -1,0 +1,1 @@
+I enjoy programing! The new tech you get to create is truly amazing and you get to make people's lives easier!
